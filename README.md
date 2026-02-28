@@ -34,5 +34,5 @@ I am committed to continuous learning and hold several industry-recognized certi
 
 ### 📫 Connect with me:
 * **LinkedIn:** [linkedin.com/in/amina-bawa-4210002b0](https://www.linkedin.com/in/amina-bawa-4210002b0)
-* **Location:** Lenasia, Gauteng, South Africa
+* **Location:** South Africa
 * **Goal:** Currently seeking opportunities to apply my cybersecurity and networking skills in a fast-paced tech environment.
